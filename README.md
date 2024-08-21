@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Engineering
 - 💞️ I’m looking to collaborate on my mine  
 - 📫 How to reach me alway
-- 😄 Pronouns: kidney cvd enginer 
+- 😄 Pronouns: kidney cvd engineer 
 - ⚡ Fun fact: travel
 
 <!---
